@@ -1,3 +1,1 @@
-Sɪᴅᴇʀ Mᴀɴ
- Fcukk
-!
+SPELLING
